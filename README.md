@@ -1,0 +1,2 @@
+# premium-harp-building-001-celtic-harp-building-string
+Dreaming of building your own Celtic harp but overwhelmed by complex plans and expensive tools? Our workshop strips away the guesswork, guiding you from raw wood to a playable string instrument with a step-by-step method that even a beginner can follow.  This isn't just another generic harp-building guide—it's a focused, hands-on workshop that demy
